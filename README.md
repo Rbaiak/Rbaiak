@@ -1,4 +1,4 @@
-Apaixonado por Desenvolvimento Web e tentando entrar no universo Front-end.
+Front-end developer.
 
 
 
